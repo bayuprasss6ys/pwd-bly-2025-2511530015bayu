@@ -1,7 +1,7 @@
 # pertemuan-02
  
-pada hari jumaat saya, 19 Desember 2025, saya tidak hadir:<br>
-kuliah karena sakit<br>
+pada hari jumaat saya, 19 Desember 2025, saya yang bernama:<br>
+bayu prasetia<br>
 2511530015<br>
 <br>
 belajar:
